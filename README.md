@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **psarbeswar15@gmail.com**
 
-- Life Lesson -⚡ PEOPLE'S DREAMS WILL NEVER END ⚡ **-Blackbeard**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
